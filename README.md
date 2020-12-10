@@ -1,1 +1,1 @@
-# Transcris-es-Acad-micas
+TRANSCRISOES ACADEMICAS
